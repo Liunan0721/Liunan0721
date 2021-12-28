@@ -1,7 +1,7 @@
-Hi there    I'm [chenchenYa](https://Liunan0721.github.io) (程程鸭) .
+Hi there    I'm [nannan](https://Liunan0721.github.io) .
 
-* 📍 无锡
-*  Working on a small connected company
+* 📍 YOKOHAMA
+*  Working on a small connected co
 * 🍗 Like to eat all kinds of meat 
 *  No married and no children
 * 🦸‍♂️ Become a better programmer 
