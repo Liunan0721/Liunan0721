@@ -1,4 +1,4 @@
-Hi there    I'm [nannan](https://Liunan0721.github.io) .
+Hi there    I'm [nannan](https://Liunan0721.github.io) (楠楠鸭).
 
 * 📍 YOKOHAMA
 *  Working on a small connected co
